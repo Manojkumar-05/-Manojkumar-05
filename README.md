@@ -1,1 +1,1 @@
-# Yooo bro wassup
+# Nihilisticly Absurd
